@@ -1,4 +1,4 @@
-### Hi there 👋
+
 # CURRICULUM VITAE
 # DATA PRIBADI
 - Nama : Arya Marselino Putra Adrian
